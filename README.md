@@ -15,5 +15,5 @@ Engineering student focused on computational problem-solving, algorithmic thinki
 
 ### 📬 Connect With Me
 - **LinkedIn:** [linkedin.com/in/samarth kori](https://linkedin.com)
-- **Instagram:** [@samarthkori](https://instagram.com/samarthmkori)
+- **Instagram:** [@samarthmkori](https://instagram.com/samarthmkori)
 - **Email:** samarthkori55@gmail.com
